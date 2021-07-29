@@ -6,12 +6,6 @@
 
 # Names
 
-* Maureen Njihia 
 
-Wanjugu Mung'au
+Trixie Murugi
 
-_anthony mutuku_--- Anthony64M
-
-- Ian Mwenda
-
-* Wilson Kinyua 🙂
